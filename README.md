@@ -2,7 +2,7 @@
 - 👀 I’m interested in ELDEN RING
 - 🌱 I’m currently learning ELDEN RING
 - 💞️ I’m looking to collaborate on ELDEN RING
-- 📫 How to reach me 
+- 📫 How to reach me discord: @allysson1109
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: I love to play ELDEN RING
 
