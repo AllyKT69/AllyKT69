@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ELDEN RING
 - 📫 How to reach me: Discord: @allysson1109 Instagram: @allyssonveit_01
 - 😄 Pronouns: he/his
-- ⚡ Fun fact: I love to play ELDEN RING
+- ⚡ A
+- A fact: I love to play ELDEN RING
 
 <!---
 AllyKT69/AllyKT69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
